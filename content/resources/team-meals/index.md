@@ -13,11 +13,11 @@ Team members eat together as a team during the longer work days of the build sea
 
 Suggested items to serve:
 
-Premade Grilled Cheese Sandwiches, Samosas, Pot Stickers, Dumplings, Loaded Potato Skins, Burritos, Quiche, Quesadillas, Stromboli, Calzone, Chicken or Veggie Nuggets, Chicken Tenders, Egg Rolls, Wraps with various fillings (meat and veggie), trays of Roasted Veggies
+Premade Grilled Cheese Sandwiches, Samosas, Pot Stickers, Dumplings, Loaded Potato Skins, Burritos, Quiche, Quesadillas, Stromboli, Calzone, Chicken or Veggie Nuggets, Chicken Tenders, Egg Rolls, Wraps with various fillings (meat and veggie), trays of Roasted Veggies.
 
 **Dinners: Dinners are setup starting at 5pm and served at 6:30 PM.** Meals consist of an entrée, vegetables or salad, rolls, drinks and a dessert.
 
-Meals from the past have included pasta dishes, turkey or ham dinners, tacos, beef stew, chili, baked potatoes with toppings, etc. We always make sure a vegetarian option is available. **Ethnic dishes and vegetarian meals are always welcome and encouraged**
+Meals from the past have included pasta dishes, turkey or ham dinners, tacos, beef stew, chili, baked potatoes with toppings, etc. We always make sure a vegetarian option is available. **Ethnic dishes and vegetarian meals are always welcome and encouraged**.
 
 We will relay any information we receive about allergies and what is necessary to keep team members safe. You may be asked to make several portions of a meal without onions, or several portions without milk or cheese.
 
@@ -29,10 +29,10 @@ Plates, silverware, cups, and napkins are provided by the team. Please bring the
 
 You, along with your child, will be assisted with setting up your meal. Meals may be heated through or kept warm in the ovens until ready to serve. We have 10 ovens, 10 microwaves, and 8 stove tops to help us get everything ready on time. Several team members will be assigned to clean up the room and assist you to your car.
 
-Meal dates and times may be viewed on the team calendar at [www.shrewsburyrobotics.org](http://www.shrewsburyrobotics.org/calendar)
+Meal dates and times may be viewed on the team calendar at [www.shrewsburyrobotics.org](http://www.shrewsburyrobotics.org/calendar).
 
-Meal sign ups are done here: [ https://www.signupgenius.com/<wbr></wbr>go/409044dadae2ca6f49-2019](https://www.signupgenius.com/go/409044dadae2ca6f49-2019)
+Meal sign ups are done here: [ https://www.signupgenius.com/<wbr></wbr>go/409044dadae2ca6f49-2019](https://www.signupgenius.com/go/409044dadae2ca6f49-2019).
 
-Questions about meals, please email <nancy@shrewsburyrobotics.org>
+Questions about meals, please email <nancy@shrewsburyrobotics.org>.
 
-If there are financial difficulties that you feel will prevent you from taking part, please email <carol@shrewsburyrobotics.org> This information will be kept in confidence, and we want all of our team members to take part in all required activities.
+If there are financial difficulties that you feel will prevent you from taking part, please email <carol@shrewsburyrobotics.org>. This information will be kept in confidence, and we want all of our team members to take part in all required activities.
